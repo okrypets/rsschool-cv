@@ -2,7 +2,7 @@
 ![My Photo](https://media-exp1.licdn.com/dms/image/C4D03AQFqe_Yk8VOBTA/profile-displayphoto-shrink_200_200/0?e=1586390400&v=beta&t=YIXMkRkHwVVjlmYECex5ztFFkSYBEKO4OX-0tvTy9bE)
 
 ## Contact Info
-* tel: +375-22-333-33-33 (Viber)
+* tel: +375-22-333-33-33 (Viber, Telegram)
 * e-mail: okrypets@gmail.com
 
 ## Summury.
